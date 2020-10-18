@@ -37,4 +37,5 @@
 
 <h3 align="center"> Those are my exploration on one of Google Developer Products, Google Assistant! Thank you for reading 😊 </h3>
 
-### мαнαяαиι αуυ ρυтяι ιяαωαи - 2020
+#### мαнαяαиι αуυ ρυтяι ιяαωαи - 2020
+#### ѕтєι'20 - 16520134
