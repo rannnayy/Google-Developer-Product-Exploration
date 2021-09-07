@@ -40,5 +40,6 @@
 
 <h3 align="center"> Those are my exploration on one of Google Developer's Products, Google Assistant! Thank you for reading 😊 </h3>
 
-#### мαнαяαиι αуυ ρυтяι ιяαωαи - 2020
+#### мαнαяαиι αуυ ρυтяι ιяαωαи - 2020 - 2021
 #### ѕтєι'20 - 16520134
+#### 𝓘𝓕'20 - 13520019
